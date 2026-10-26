@@ -1,0 +1,1 @@
+# smart_laundry_ota_2.8inch
